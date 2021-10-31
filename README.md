@@ -6,6 +6,8 @@ and processing.
 
 You can find the most updated list of scientific publications in:
 
-https://scholar.google.com/citations?user=3Rm-8d8AAAAJ&hl=en
+1) https://scholar.google.com/citations?user=3Rm-8d8AAAAJ&hl=en
 
-Contact me in: plcarmona@ubu.es or platorrecarmona1@gmail.com
+2) https://orcid.org/0000-0001-6984-5173
+
+Contact me at: plcarmona@ubu.es or platorrecarmona1@gmail.com
